@@ -4,7 +4,9 @@ seson share similarities with meson in physics
 
 # 色身
 ## 用途
-给各种APP交合提供场所
+一个简单的胶水应用
+
+给各种APP交合提供稳定场所
 
 根据使用者的目的不同
 
