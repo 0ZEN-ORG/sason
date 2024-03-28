@@ -5,11 +5,15 @@ seson share similarities with meson in physics
 # 色身
 ## 用途
 给各种APP交合提供场所
+
 根据使用者的目的不同
+
 达成不同的目的
 
 ## 造字原理
 沙僧外号黄婆，作为媒介连接四象
+
+水火既济之相由此而生
 
 而色身本身也是类似的作用，作为媒介连接表象
 
@@ -21,3 +25,4 @@ seson share similarities with meson in physics
 
 甚至直接拼读为四川话的色身
 
+应用(表象) APP(Appearance)
