@@ -11,7 +11,7 @@ seson share similarities with meson in physics
 
 所以用seson来作为名字很是恰当
 
-而不仅可以作为英文来读
+不仅可以作为英文单词
 
-甚至可以直接拼读为四川话的色身
+甚至直接拼读为四川话的色身
 
